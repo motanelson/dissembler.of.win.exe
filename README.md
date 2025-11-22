@@ -1,6 +1,3 @@
-50 years from processor 1971
-
-
-https://en.wikipedia.org/wiki/Intel_4004
+Black Friday is the day when retailers take out products from previous years and put them on sale at special prices, so they can buy new products for Christmas and new items for the New Year.
 
 
